@@ -1,0 +1,2 @@
+# The-Necessity-v-s-Luxury-Dilemma-A-SVAR-Analysis-of-Import-Compression-in-India
+This study investigates the channel of transmission of US monetary policy tightening on India’s  import basket particularly with respect to divergence between energy (oil) and non-energy (non oil) trade flows. As emerging markets become more integrated with the global financial system,. We examine the “Import Compression” .
